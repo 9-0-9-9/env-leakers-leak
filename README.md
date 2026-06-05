@@ -4,3 +4,5 @@ Since most popular enviorment loggers have been getting leaked why not leak the 
 
 --------
 the person who sent me all of these i wont be saying the names of so dont ask!
+--------
+not writen by me too btw most are vibecoded LOL
